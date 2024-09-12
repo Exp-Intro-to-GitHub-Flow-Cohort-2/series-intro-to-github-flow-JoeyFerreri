@@ -1,1 +1,1 @@
-bazinga
+Welcome to my GitHub profile!
